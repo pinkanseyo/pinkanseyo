@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pinkanseyo
+- 👋 Hi, I’m Pinkan Nabila Badzlin a.k.a. Pinkan
 - 👀 I’m interested in games, novels, and talkshows
 - 🌱 I’m currently learning English Literature
 - 💞️ I’m looking to collaborate on assignment discussion
